@@ -1,0 +1,2 @@
+# waamo
+hooyga waxbarashda 
